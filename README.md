@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BEAN040520HBCLCSA7
+BEAN040520HBCLCSA7
